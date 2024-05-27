@@ -9,5 +9,5 @@
 
 otaviovinteum21@gmail.com
 
-![]()
-https://tenor.com/pt-BR/view/alex-pereira-khaby-lame-ufc-300-poatan-taunt-gif-7651580852430397197
+![]
+(https://tenor.com/pt-BR/view/alex-pereira-khaby-lame-ufc-300-poatan-taunt-gif-7651580852430397197)
